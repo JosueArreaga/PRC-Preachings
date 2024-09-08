@@ -14,7 +14,7 @@ Today's sermon will focus on a chapter from Exodus:
 
 ### Title: God's Provision in the Wilderness
 
-## Introduction:
+## Introduction
 
 When you look at countries in South America and the U.S., there is no doubt that problems exist, and many believe things will not improve. As a result, I thought it fitting to teach about God's provision in the wilderness, as narrated in Exodus. The book recounts the 40 years in the desert. Deuteronomy was written in the last two months of those 40 years. Many had died in the desert and had never heard the law before.
 
